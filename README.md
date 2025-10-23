@@ -1,2 +1,0 @@
-# fira istri myungjae
-wleeeeeee
